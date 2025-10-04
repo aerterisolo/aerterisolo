@@ -1,6 +1,6 @@
 <img width="503" height="283" alt="f8bfd5c38d3ed62d91b18a0cdf51ac34-removebg-preview" src="https://github.com/user-attachments/assets/5eac4955-297c-4056-ab8c-48dbd833d11f" />
 
-hi i'm asp ok? I also go by ink or spoon. I'm profic + darkfic, 14+ only please. Don't be weird towards me if you're a minor unless ur one of my partners ok? I ONLY go by it/its, you can call me a girl, just use my pronouns, ex being ''it's so cool''
+hi i'm asp ok? I also go by ink or spoon. I'm profic + darkfic, 14+ only please. Don't be weird towards me if you're a minor I ONLY go by it/its.
 
 I usually sit at the profic tree, the middle of the map, or the roblox area, i'm fine with c+h, just don't cover my pony. If I'm sitting with someone else, which is probably one of my partners, PLEASE do not bother me I'm on dniuc when I'm playing with my partners
 
