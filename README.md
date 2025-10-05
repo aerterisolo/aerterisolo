@@ -7,7 +7,7 @@ Don't be weird towards me if you're a minor. I ONLY go by it/its.
 
 I usually sit at the profic tree, the middle of the map, or the roblox area, i'm fine with c+h, just don't cover my pony.
 
-DNI HOMESTUCK FANS + OBJECT SHOW FANS UNLESS UR MY FRIEND
+DNI OBJECT SHOW FANS UNLESS UR MY FRIEND
 
 Also I own a discord server, we need boosts for a vanity! please whisper me on pt for the invite link.
 
