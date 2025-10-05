@@ -72,7 +72,7 @@ Also I own a discord server, we need boosts for a vanity! please whisper me on p
 
 
 
-![fict](https://github.com/user-attachments/assets/40e11b78-0205-41b2-abe4-7b7a976bd423)!![pros](https://github.com/user-attachments/assets/9bba3736-ee66-45ab-83d3-30b6ccc38f87)![tumblr_7957c8f6f613e521008fb6851d14dd6a_fff2c7f8_400](https://github.com/user-attachments/assets/e3fc7fb0-2f07-4b81-a00f-ca46f5cb26a8)![477937336-656817aa-43fd-4c55-bb8c-d0ac2525a518](https://github.com/user-attachments/assets/5952115b-f177-4cc4-9427-aac94df29c15)
+![fict](https://github.com/user-attachments/assets/40e11b78-0205-41b2-abe4-7b7a976bd423)![pros](https://github.com/user-attachments/assets/9bba3736-ee66-45ab-83d3-30b6ccc38f87)![tumblr_7957c8f6f613e521008fb6851d14dd6a_fff2c7f8_400](https://github.com/user-attachments/assets/e3fc7fb0-2f07-4b81-a00f-ca46f5cb26a8)![477937336-656817aa-43fd-4c55-bb8c-d0ac2525a518](https://github.com/user-attachments/assets/5952115b-f177-4cc4-9427-aac94df29c15)
 
 
 
