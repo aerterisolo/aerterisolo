@@ -6,6 +6,8 @@ I go by ink or spoon. I'm profic + darkfic, 14+ only please. Don't be weird towa
 
 I usually sit at the profic tree, the middle of the map, or the roblox area, i'm fine with c+h, just don't cover my pony.
 
+DNI HOMESTUCK FANS + OBJECT SHOW FANS UNLESS UR MY FRIEND
+
 Also I own a discord server, we need boosts for a vanity! please whisper me on pt for the invite link.
 
 
