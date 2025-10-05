@@ -25,10 +25,15 @@ Also I own a discord server, we need boosts for a vanity! please whisper me on p
 
 
 
-![0188-knifechainsaw](https://github.com/user-attachments/assets/375b76e5-d113-4adf-bf5d-48c6aa063e27)
+![0188-knifechainsaw](https://github.com/user-attachments/assets/375b76e5-d113-4adf-bf5d-48c6aa063e27)![kid](https://github.com/user-attachments/assets/bf737897-e81b-4111-a0c6-a01dd6a8f310)
 
 
-![68747470733a2f2f692e706f7374696d672e63632f35304276315a6a782f636438346632653339393638663361303030386435633562666165373633616466376364353339342e676966](https://github.com/user-attachments/assets/9f3323e3-765d-4bac-96a8-7d03ed0f6e86)
+
+
+![fict](https://github.com/user-attachments/assets/40e11b78-0205-41b2-abe4-7b7a976bd423)!![pros](https://github.com/user-attachments/assets/9bba3736-ee66-45ab-83d3-30b6ccc38f87)
+
+
+
 
 
 
