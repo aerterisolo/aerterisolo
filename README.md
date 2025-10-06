@@ -1,14 +1,16 @@
 
 
 
-I go by ink or spoon. I'm profic + darkfic, 14+ only please. 
-Don't be weird towards me if you're a minor. I ONLY go by it/its.
+I go by ink or spoon. I'm profic + darkfic. 14+ only please. 
+Don't be weird towards me if you're a minor, I will block you. 
+I ONLY go by it/its.
+Read my strawpage for more byi info
 
 I usually sit at the profic tree, the middle of the map, or the roblox area, i'm fine with c+h, just don't cover my pony.
+Also I own a discord server, we need boosts for a vanity! please whisper me on pt for the invite link.
 
 DNI OBJECT SHOW FANS UNLESS UR MY FRIEND
 
-Also I own a discord server, we need boosts for a vanity! please whisper me on pt for the invite link.
 
 ![tumblr_5ceaf840b568d3d18fb911e4c1cf5da5_20dfa3e9_400](https://github.com/user-attachments/assets/c775b391-2f21-4593-b605-52d5215b9cf0)
 
