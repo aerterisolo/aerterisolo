@@ -9,7 +9,7 @@ I ONLY go by it/its.
 
 Read my strawpage for more byi info
 
-I usually sit at the profic tree, the middle of the map, or the roblox area. I'm fine with c+h, just don't cover my pony.
+I usually sit at the profic tree, the middle of the map, or the roblox area. I'm fine with c+h, I just ask of you don't cover my pony. I'm always doing something else, so I will reply very late sometimes. I will reply eventually though
 
 (Also I own a discord server, we need boosts for a vanity! please whisper me on pt for the invite link.)
 
