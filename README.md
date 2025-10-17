@@ -1,24 +1,16 @@
+I am; 
+<img width="43" height="62" alt="63745430_xbbsDi19ZPYaK9P" src="https://github.com/user-attachments/assets/76535d33-7428-420a-9c0c-7ed95c71a51b" /> and <img width="43" height="62" alt="63745413_h8tB2K8mHB8BCiy" src="https://github.com/user-attachments/assets/b23109a5-d019-496f-8a66-e3ceb21d7c1e" /> (it/its to Nullpronominal)
 
 
 
-I go by ink or spoon. I'm profic + darkfic. 14+ only please. 
 
-Don't be weird towards me if you're a minor, I will block you. 
-
-I ONLY go by it/its.
-
-Read my strawpage for more byi info
+I go by ink or spoon, which ever one you prefer. I'm profic + darkfic. 14+ only please. 
 
 I usually sit at the profic tree, the middle of the map, or the roblox area. I'm fine with c+h, I just ask of you don't cover my pony. I'm always doing something else, so I will reply very late sometimes. I will reply eventually though
-
-(Also I own a discord server, we need boosts for a vanity! please whisper me on pt for the invite link.)
-
-DNI OBJECT SHOW FANS UNLESS UR MY FRIEND
 
 
 ![tumblr_5ceaf840b568d3d18fb911e4c1cf5da5_20dfa3e9_400](https://github.com/user-attachments/assets/c775b391-2f21-4593-b605-52d5215b9cf0)
 
-blinkies collection and stuff uhm
 
 
 ![blinkiesCafe-yT](https://github.com/user-attachments/assets/441e5c26-8c13-4b95-9ff6-fc5b416c940d)
