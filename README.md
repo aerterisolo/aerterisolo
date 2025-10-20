@@ -105,7 +105,11 @@ I usually sit at the profic tree, the middle of the map, or the roblox area. I'm
 
 ![fict](https://github.com/user-attachments/assets/40e11b78-0205-41b2-abe4-7b7a976bd423)![pros](https://github.com/user-attachments/assets/9bba3736-ee66-45ab-83d3-30b6ccc38f87)![tumblr_7957c8f6f613e521008fb6851d14dd6a_fff2c7f8_400](https://github.com/user-attachments/assets/e3fc7fb0-2f07-4b81-a00f-ca46f5cb26a8)![477937336-656817aa-43fd-4c55-bb8c-d0ac2525a518](https://github.com/user-attachments/assets/5952115b-f177-4cc4-9427-aac94df29c15)
 
-![tumblr_25658cb5770bd08758b3914ea4386ffb_64a93e4f_500](https://github.com/user-attachments/assets/e9211b56-f1ea-441d-b2d6-34b64acd986f)![tumblr_ab3010fe122c4c0bd797979aae7350b9_9a671cea_500](https://github.com/user-attachments/assets/0c7a1c73-65d4-4cb2-b599-648d415ea196)![tumblr_9ca1fb383576f71f1f689c55ea829eb4_b1cbe643_500](https://github.com/user-attachments/assets/54ba3826-fd37-492a-b3c6-ea63b48b100f)![tumblr_965167efae7e62e8fa6f11db5ca9914a_adc82d0c_400](https://github.com/user-attachments/assets/28c2d406-2c8a-4d9f-9308-83d60907b6b9)![tumblr_ffffdb0ba0a3d0a13591c104592ef139_b57b357e_400](https://github.com/user-attachments/assets/08bb325c-4f4b-4501-ac89-dba95154a77a)![tumblr_0f313e3527a681f4ac531dadd8e6ec1f_5b3cb06c_400](https://github.com/user-attachments/assets/d0895482-facc-4b6f-bbe6-2a5f53f5abce)![tumblr_ceb117893c84f59a9801e840e0dd7797_6ff616b9_500](https://github.com/user-attachments/assets/cc15465c-c614-427a-ab13-8ae84c3f07c1)
+![tumblr_9ca1fb383576f71f1f689c55ea829eb4_b1cbe643_500](https://github.com/user-attachments/assets/54ba3826-fd37-492a-b3c6-ea63b48b100f)![tumblr_965167efae7e62e8fa6f11db5ca9914a_adc82d0c_400](https://github.com/user-attachments/assets/28c2d406-2c8a-4d9f-9308-83d60907b6b9)![tumblr_ffffdb0ba0a3d0a13591c104592ef139_b57b357e_400](https://github.com/user-attachments/assets/08bb325c-4f4b-4501-ac89-dba95154a77a)![tumblr_0f313e3527a681f4ac531dadd8e6ec1f_5b3cb06c_400](https://github.com/user-attachments/assets/d0895482-facc-4b6f-bbe6-2a5f53f5abce)![tumblr_ceb117893c84f59a9801e840e0dd7797_6ff616b9_500](https://github.com/user-attachments/assets/cc15465c-c614-427a-ab13-8ae84c3f07c1)
+
+![tumblr_25658cb5770bd08758b3914ea4386ffb_64a93e4f_500](https://github.com/user-attachments/assets/cbe9cfb8-711c-48d1-a6a1-e9d71fd79fa0)![tumblr_ab3010fe122c4c0bd797979aae7350b9_9a671cea_500](https://github.com/user-attachments/assets/6a89b69f-b67e-4613-b85a-ac082dc217d9)
+
+
 
 
 
